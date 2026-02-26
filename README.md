@@ -1,2 +1,3 @@
 ## Alax Pedroso
-![](https://media.tenor.com/7lxOeaG6BTMAAAAi/sprite-aura-farming.gif)
+![](https://media1.tenor.com/m/pUL5t8GDbq8AAAAd/tigrinho-fortune.gif)
+(¬_¬ )🎰⁷⁷⁷💀
